@@ -38,29 +38,7 @@ To effectively monitor, manage, and strengthen IKEA’s online reputation by pro
 - Influencer blogs, review sites (e.g., Trustpilot, Yelp)
 - News sites & online
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+## OUTPUT
 
 
 
