@@ -40,6 +40,7 @@ To effectively monitor, manage, and strengthen IKEA’s online reputation by pro
 
 ## OUTPUT
 
+[📘 IKEA Online Reputation Management (ORM) Strategy.docx](https://github.com/user-attachments/files/21368785/IKEA.Online.Reputation.Management.ORM.Strategy.docx)
 
 
 
